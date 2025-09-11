@@ -9,3 +9,4 @@
 - [Israel’s bombing of Qatar explained | Muhammad Shehada | UNAPOLOGETIC](https://youtu.be/ez6vHKzXRqk)
 - [BREAKING: Israel Attacks HAMAS, Why This is Different /Lt Col Daniel Davis & Jennifer Kavanagh](https://youtu.be/BA71jG6_M6o)
 - [Scott Ritter & Alex Christoforou On The Israel-Qatar Strikes](https://youtu.be/ebxiK2TT3bk)
+- [Trump & Israel HUMILIATED: IDF's Qatar Strike BACKFIRES into WW3 | Larry Johnson & Col. Wilkerson](https://youtu.be/0xVRCl0ePrY)
