@@ -1,0 +1,1 @@
+- [Why I don't use a SIM card and neither should you](https://youtu.be/4Dei2buz1X0)
